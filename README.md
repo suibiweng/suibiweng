@@ -1,6 +1,6 @@
 Che-Chuan(Suibi) Weng 翁哲川
-E-mail:suibi.weng@gmail.com  /Suibi.Weng@colorado.edu
-personal website:https://suibi-studio.squarespace.com/
+ E-mail:suibi.weng@gmail.com  /Suibi.Weng@colorado.edu
+ personal website:https://suibi-studio.squarespace.com/
 
 
 Introduction
